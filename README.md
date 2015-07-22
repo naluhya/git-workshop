@@ -1,6 +1,6 @@
 kfkfkfkfkfkkffkfkfk
 ksdkf;ksd;fksd;lklf
-<<<<<<< HEAD
+<<<<<<< HEAD  tum na
 d 
 sfsdf
 
